@@ -3,7 +3,8 @@ not much explored so no fav as such
 JOKE
 Whats difference between file and cars : both have nano as basic 
 
-^.^
-
-
-
+My mood cat 
+^ . ^
+- _ -
+o . o
+> ^ <
