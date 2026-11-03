@@ -8,3 +8,8 @@ My mood cat
 - _ -
 o . o
 > ^ <
+
+
+Found the Flag ^.^
+
+FOSS{git_my_life_}
